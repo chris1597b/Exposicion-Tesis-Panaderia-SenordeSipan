@@ -1,1 +1,0 @@
-# Exposicion-Tesis-Panaderia-SenordeSipan
